@@ -1,4 +1,4 @@
-### Hi there 👋
+### hallo👋 my name is jessee I am a student at DBHS, roll tribe!
 
 <!--
 **darklightning80/darklightning80** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
